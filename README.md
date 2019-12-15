@@ -8,4 +8,4 @@ Bachelors in Mass communication
 - knowlodege of Adobephotoshop
 ------------------------------------------
 contact me at khushboo.sehar111@gmail.com
-![Anything](/nameOfYourFile)
+![Anything](/mmexport1570784920372.jpg)
