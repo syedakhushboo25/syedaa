@@ -1,8 +1,8 @@
 # Profile
 welcome to the profile of Khushboowaleed!
 ## Education Experience
--IMBA
--bachelors in Mass communication
+International Masters of business Administration
+Bachelors in Mass communication
 ## Abilities
 - Photography
 - knowlodege of Adobephotoshop
